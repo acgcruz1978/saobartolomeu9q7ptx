@@ -1,1 +1,0 @@
-# saobartolomeu9q7ptx
